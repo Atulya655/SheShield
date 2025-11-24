@@ -1,4 +1,4 @@
-#  S H E S H I E L D : A Massive Concept Report (Under Progress, Not a Finished Product) 🛡️🚺
+#  SHE SHiELD : A Massive Concept Report (Under Progress, Not a Finished Product) 🛡️🚺
 
 A deeply detailed, brutally honest, unnecessarily gigantic write-up you asked for.
 
