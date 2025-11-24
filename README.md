@@ -1,4 +1,4 @@
-#  SHE SHiELD : A Massive Concept Report (Under Progress, Not a Finished Product) 🛡️🚺
+#  SheShield : A Massive Concept Report (Under Progress, Not a Finished Product) 🛡️🚺
 
 A deeply detailed, brutally honest, unnecessarily gigantic write-up you asked for.
 
